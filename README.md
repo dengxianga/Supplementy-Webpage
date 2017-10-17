@@ -1,2 +1,2 @@
 
-The website is temporarily closed due to a paper submission.
+moved here https://www.seas.upenn.edu/~dxiang/research.html
